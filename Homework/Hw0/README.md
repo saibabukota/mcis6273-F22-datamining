@@ -1,5 +1,5 @@
 ## Zoreto Username
-**Nagasai.devops@gmail.com or username saibabu**
+**Nagasai.devops@gmail.com orusername saibabu**
 
 ## Three things learnt from the podcast
 
