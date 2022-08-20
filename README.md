@@ -1,5 +1,4 @@
 # mcis6273-F22-datamining-1336
 # My Zotero Email
-nagasai.devops@gmail.com
-# Username
-Saibabu
+Saibabu2k16@gmail.com
+
